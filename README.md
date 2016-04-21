@@ -1,1 +1,1 @@
-I want to do a game to eliminate to music for my girlfriend
+We want to do a pop
